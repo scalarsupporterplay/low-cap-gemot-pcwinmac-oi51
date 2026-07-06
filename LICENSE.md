@@ -1,4 +1,4 @@
-# 
+# آلي low cap gem sniper bot سكريبتات لـ Mac OS | احترافي low cap gem sniper bot سكريبتات لـ PC Windows. مع حماية وقف الخسارة و اكتشاف ضريبة الشراء — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
